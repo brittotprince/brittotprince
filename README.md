@@ -2,7 +2,6 @@
 - 👀 I’m interested in IOT, web development and basically anything that I find amusing
 - 🌱 and you know what's amusing rigt now -> quanum computing😇
 - 💞️ I’m looking to collaborate on anything that can make a better tomorrow.
-- 📫 Reach me @ brittotprince@gmail.com
 
 #### <p align="center">`We have the responsibility to make the W🌐rld a better place...`</p>
 
